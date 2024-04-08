@@ -1,2 +1,4 @@
 Lindsay Bestvater
-
+bestvatl@oregonstate.edu
+green
+Manchester Orchestra
